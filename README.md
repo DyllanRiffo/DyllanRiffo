@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif](https://hips.hearstapps.com/hmg-prod/images/gato-bailando-1550658206.gif)](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.menshealth.com%2Fes%2Fnoticias-deportivas-masculinas%2Fa26420866%2Fgatos-deportistas-memes%2F&psig=AOvVaw3dySguyLqbNGPbUGqBcCEs&ust=1753582110649000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCPCUway42Y4DFQAAAAAdAAAAABAE)](https://hips.hearstapps.com/hmg-prod/images/gato-bailando-1550658206.gif?crop=1xw:1xh;center,top&resize=640:*"  />
+<img align="right" height="150" src="https://hips.hearstapps.com/hmg-prod/images/gato-bailando-1550658206.gif"  />
 
 ###
 
